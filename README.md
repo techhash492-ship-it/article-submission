@@ -1,4 +1,4 @@
-Best Software Development Company in Kerala 
+**Best Software Development Company in Kerala**
 
 In an era where digital transformation is no longer optional, choosing the right technology partner is the most critical decision a business can make. From startups in Kochi to established enterprises across India, the search for the best software development company in Kerala often leads to one name: Techhash.
 
